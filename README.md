@@ -1,3 +1,3 @@
 ## truth, thou art a cruel one..
 
-![lol](https://github.com/user-attachments/assets/336251db-e3a6-492d-a24a-8f66072bda79)
+![Image](https://github.com/user-attachments/assets/fa45b06a-37bd-4cf2-93bc-2c985fe32ec9)
