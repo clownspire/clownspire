@@ -1,3 +1,3 @@
-## truth, thou art a cruel one..
+## shadows live twice.
 
-![Image](https://github.com/user-attachments/assets/fa45b06a-37bd-4cf2-93bc-2c985fe32ec9)
+![Image](https://static.wikia.nocookie.net/roblox/images/0/05/Spawn_Decal.png/revision/latest?cb=20240608072018)
